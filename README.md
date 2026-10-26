@@ -10,3 +10,7 @@ INTRIVIA sejauh ini seru banget dan di luar ekspektasi karena suasananya hangat 
 
 ## Kesan Pesan Cluster 11 Sejauh Ini
 Cluster 11 sejauh ini pokoknya asik dan seru banget! Suasananya hidup, teman-teman di cluster kompak, dan kakak pendampingnya juga seru jadi bikin kegiatannya dinikmati banget tanpa rasa tegang. Semoga ke depannya cluster kita tetap kompak dan makin solid sampai seluruh rangkaian acara selesai!
+
+## Harapan Kuliah
+## Harapan Kuliah
+Selama kuliah, saya berharap bisa memahami ilmu yang saya dapat dengan baik, bukan hanya mengejar nilai. Saya ingin aktif berorganisasi dan mengikuti kegiatan kampus, mendapat teman dan relasi yang saling mendukung, serta mengembangkan keterampilan teknis dan kemampuan bekerja sama dalam tim. Saya juga berharap bisa lulus tepat waktu dengan hasil yang membanggakan, sehingga siap berkontribusi di dunia kerja maupun masyarakat.
